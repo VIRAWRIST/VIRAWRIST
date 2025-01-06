@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=572b08)
+![](![](https://komarev.com/ghpvc/?username=virawrist&color=572b08)
 ![1000000253](https://github.com/user-attachments/assets/5c5354ce-38d3-4ddf-8d2c-ea16702d97bd)
 ![1000000256](https://github.com/user-attachments/assets/476e641c-2763-42d5-a59e-532354c38603)
 
