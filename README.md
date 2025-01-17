@@ -4,9 +4,12 @@
 
 
 
-![1000000356](https://github.com/user-attachments/assets/03092b85-01e2-4ffe-bc6d-9c340682ed66)
+![1000000438](https://github.com/user-attachments/assets/483b092e-f4ae-477a-a1b0-cfd1d87ede60)
 
 
- agent.  
-vira is acceptable .
-wip , will decorate this shit later
+
+  ![1000000444](https://github.com/user-attachments/assets/378e247b-f095-4427-98b6-a51e4f30c359)        ![1000000445](https://github.com/user-attachments/assets/f8d4ae8f-f7fd-4e0a-b44b-0eb85edc4513)
+
+
+
+ 
