@@ -1,7 +1,7 @@
-![](https://komarev.com/ghpvc/?username=victim&color=lightgrey&label=⠀+─)
+![](https://komarev.com/ghpvc/?username=GITHUB&color=D6FBFF&label=WHORES)
 
 
 
-[![Untitled design (4)](https://github.com/user-attachments/assets/75618d6a-0338-4022-9050-753f09cfb465)
+[![1000000598](https://github.com/user-attachments/assets/be9ca7c5-b1b0-4e3a-94bf-ebf30c1ea146)
 ](https://rentry.co/uictim)
 
