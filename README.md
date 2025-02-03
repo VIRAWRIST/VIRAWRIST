@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=GITHUB&color=FF8BF3&label=WHORES)
+![](https://komarev.com/ghpvc/?username=antonkomarev&color=FF8BF3&label=WHORES&abbreviated=true)
 
 
 
