@@ -5,5 +5,4 @@
 [![1000000924](https://github.com/user-attachments/assets/ca888a57-630a-407b-bcf3-2f9542ea5b03)
 ](https://rentry.co/uictim)
 
-click on the goddamn image you braindead oh my fucking God.
 
